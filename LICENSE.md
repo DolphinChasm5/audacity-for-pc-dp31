@@ -1,4 +1,4 @@
-# 
+# updated Audacity for PC | Audacity for Windows Transition | EQ + time-stretching offers the most advanced Audacity for PC | Audacity for Windows transition, with EQ and
 
 
 
